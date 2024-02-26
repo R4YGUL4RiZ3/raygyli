@@ -2,7 +2,7 @@
 - 👀 I’m interested in deep learning
 - 🌱 I’m currently learning RNNs and NLP
 - 💞️ I’m looking to collaborate on deep learning related projects
-- 📫 How to reach me [TBD]
+- 📫 How to reach me Email✉️ liray6311@gmail.com
 - 😄 Pronouns:  he/him
 - ⚡ Fun fact: 🏸
 
